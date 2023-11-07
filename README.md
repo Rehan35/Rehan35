@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rehanparwani@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1oSBvP5TLcQdS2tsbQXiYZ5QPmWlRS-5p/view?usp=drive_link](https://drive.google.com/file/d/1DFTW7KhbsO2l21_HnVmYx_fWW02M6zZ0/view?usp=drive_link)]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1oSBvP5TLcQdS2tsbQXiYZ5QPmWlRS-5p/view?usp=drive_link](https://drive.google.com/file/d/1DFTW7KhbsO2l21_HnVmYx_fWW02M6zZ0/view?usp=drive_link)]
 - ⚡ Fun fact **I share a birthday with a monkey in San Francisco Zoo**
 
 <h3 align="left">Connect with me:</h3>
